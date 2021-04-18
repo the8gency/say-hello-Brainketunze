@@ -7,9 +7,9 @@ I am Brainketunze a student of HYF. I live in landen together with my family.
 * brainketunze@gmail.com
 * [Github](http://www.github.com/Brainketunze)
 
-## Skils and hubby's
+## Language/hubby's
 * Language: English, French een bitje Nederlands🙂
-* Swimming, running, watching movies Reading books and newpapers. 😃
+* Hubby's: Swimming, running, watching movies Reading books and newpapers. 😃
  
 
 ## Languages and Tools:**  
